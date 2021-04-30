@@ -1,3 +1,3 @@
 # Onetap-JavaScripts
 
-Discord: duh#9080
+Discord: hahahahahaha#6507
